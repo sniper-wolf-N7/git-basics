@@ -1,0 +1,3 @@
+Git Basics
+
+I’m nailing the basics of life and not really, but I can kill on the piano and drum and guitar, and I’ll be making music that is undeniable fairly soon, and a way for musicians to directly monetize the products they are responsible for creating, giving them more influence to shape the culture surrounding them than ever before, provided I can tie it in to already existing economic externalities that music is tied into. The vision’s there, now it’s all implementation
